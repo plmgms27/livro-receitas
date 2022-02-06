@@ -1,32 +1,44 @@
-# *Lasanha à Bolonhesa
-### **Ingredientes:**
+# *Strogonoff de Frango*
 
- - 1 massa de lasanha (pronta)
- - 500 g de presunto
- - 500 g de queijo mussarela
- - 500 g carne moída
- - 1 massa de tomate pronta
- - sal a gosto
- - pimenta-do-reino a gosto
- - orégano a gosto
+## Ingredientes:
+
+ - 4 colheres (sopa) de manteiga
+
+ - 1 kg de filé de frango em tiras finas
+
+ - 2 cebolas picadas
+
+ - meia colher (sopa) de sal
+
+ - 1 pitada de pimenta-do-reino moída
+
+ - meia xícara (chá) de conhaque
+
+ - 200 g de champignons em conserva fatiados
+
+ - 3 colheres (sopa) de purê de tomate
+
+ -  colher (sopa) de mostarda
+
+ - 2 colheres (sopa) de ketchup
+
+ - 1 lata de NESTLÉ® Creme de Leite
+
+   
 
 
- ### **Modo de Preparo:**
+ ## Modo de Preparo:
 
-  - Cozinhe a massa da lasanha em aproximadamente em 2 litros de água por 5 minutos.
-
- - Em uma panela cozinhe a carne moída, depois de cozida coloque molho de tomate, o sal e temperos a gosto.
-
- - Comece montando com uma camada de molho, a massa da lasanha, o presunto e o queijo
-
- - Faça esse processo até tudo terminar.
-
- - Aqueça o forno a 180º C durante 5 minutos.
-
- - Coloque a lasanha no forno de 20 a 30 minutos
+  - Em uma frigideira grande, derreta três colheres (sopa) da manteiga e doure o frango, aos poucos, em fogo alto.
+  - Retire a carne e coloque a manteiga restante.
+  - Doure a cebola, junte o frango, tempere com o sal e a pimenta. Despeje o conhaque, espere aquecer e incline levemente a frigideira para flambar o conhaque. Aguarde acabar a chama.
+  - Junte os champignons, tampe a frigideira e deixe por alguns minutos.
+  - Acrescente o purê de tomate, a mostarda e o ketchup, misture bem. Abaixe o fogo, deixe por cerca de 5 minutos, com a frigideira tampada.
+  - Incorpore delicadamente o NESTLÉ Creme de Leite e retire do fogo antes de ferver.
+  - Sirva com arroz branco.
 
 ***
 
 
 #### **Dica:**
-Dica: quando você for preparar a massa da lasanha preste muita atenção. Siga atentamente as instruções da caixa. Não deixe mais que o tempo previsto de cozimento. Se isso acontecer, sua lasanha poderá ficar muito mole e comprometer o resultado. 
+Caso prefira, pule a etapa de flambar e siga todos os outros passos normalmente, pois isso não influenciará na textura final nem aparência do seu Strogonoff.
