@@ -1,4 +1,4 @@
-# Livro de receitas
-Olá, bem-vindo
-* Item 1
-* Item 2
+# Livro de receitas :woman_cook:
+Olá, bem-vindo ao meu livro de receitas :clap:
+* Lasanha à Bolonhesa 
+* Strogonoff de Frango
